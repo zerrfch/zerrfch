@@ -1,1 +1,1 @@
-don't really capable of any kind of work;
+does not really capable of any kind of work;
